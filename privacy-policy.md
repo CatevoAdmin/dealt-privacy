@@ -33,5 +33,5 @@ If we update this policy, we will post the new version here with an updated date
 
 ## Contact
 
-If you have questions about this privacy policy, contact us at [your email].
+If you have questions about this privacy policy, contact us at dealt@medialands.com.
 
